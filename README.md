@@ -1,0 +1,1 @@
+# ricemapping_japan
